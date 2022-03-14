@@ -5,6 +5,6 @@
 - 📫 How to reach me hoosiertom1@gmail.com...
 
 <!---
-TomHoo123/TomHoo123 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+TomHoo123 is a person who loves life and dogs. I am a widower of 13 years and not looking for anyone.  I live in Co. and play with dogs and 4wheel drives.  If I am at home you can find me in the back yard training dogs or in the shop working on my Willys.
 You can click the Preview link to take a look at your changes.
 --->
